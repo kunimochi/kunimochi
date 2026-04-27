@@ -2,7 +2,7 @@
 
 ⇢ ˗ˏˋ *Bio*
 ✧ ˚ · . **Nathaniel** or Mia
-   ✧ ˚ · . 18 yrs/old
+   ✧ ˚ · . 20 yrs/old
 ⇢ ˗ˏˋ Any pronouns!
 
 
